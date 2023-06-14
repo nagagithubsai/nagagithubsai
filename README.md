@@ -8,4 +8,4 @@
 nagagithubsai/nagagithubsai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-becuse i help very much just i fuck you
+thank you
